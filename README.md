@@ -13,5 +13,6 @@
 工作地：
 1、深圳
 
-
-简历请发送至：liaoxiaorong@huawei.com
+简历请发送至以下邮箱：
+liaoxiaorong@huawei.com
+liaoxiaorong2003@163.com
